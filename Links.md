@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-30 02:07 IR
+- 🎬 [How to Cram 4 Months of Studying in 4 Hours (I'll delete this if you don't get A＊s).mp4](https://github.com/masqueradesoda/sandman/raw/main/dl/How%20to%20Cram%204%20Months%20of%20Studying%20in%204%20Hours%20%28I%27ll%20delete%20this%20if%20you%20don%27t%20get%20A%EF%BC%8As%29.mp4) `29.5MB`
+
+---
+
+
 ### 📅 2026-04-29 01:56 IR
 - 🎬 [“Pretty Privilege＂ Tiktok Isn't as Pretty as You Think...It's Much Uglier..mp4](https://github.com/masqueradesoda/sandman/raw/main/dl/%E2%80%9CPretty%20Privilege%EF%BC%82%20Tiktok%20Isn%27t%20as%20Pretty%20as%20You%20Think...It%27s%20Much%20Uglier..mp4) `76.0MB`
 
