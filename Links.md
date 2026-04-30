@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-30 22:38 IR
+- 🗜️ [Xray-windows-64.zip](https://github.com/masqueradesoda/sandman/raw/main/dl/Xray-windows-64.zip) `20.0MB`
+
+---
+
+
 ### 📅 2026-04-30 20:05 IR
 - 🎬 [90's inspired makeup.mp4](https://github.com/masqueradesoda/sandman/raw/main/dl/90%27s%20inspired%20makeup.mp4) `43.7MB`
 
