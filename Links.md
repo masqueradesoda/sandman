@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-30 23:00 IR
+- 🗜️ [Xray-windows-arm64-v8a.zip](https://github.com/masqueradesoda/sandman/raw/main/dl/Xray-windows-arm64-v8a.zip) `18.5MB`
+
+---
+
+
 ### 📅 2026-04-30 22:38 IR
 - 🗜️ [Xray-windows-64.zip](https://github.com/masqueradesoda/sandman/raw/main/dl/Xray-windows-64.zip) `20.0MB`
 
