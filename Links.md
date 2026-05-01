@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-02 03:07 IR
+- 📥 [The Literature Book_ Big Ideas Simply Explained (DK Big Ideas){DK}(2020, DK){115363660} libgen.li.pdf](https://github.com/masqueradesoda/sandman/raw/main/dl/The%20Literature%20Book_%20Big%20Ideas%20Simply%20Explained%20%28DK%20Big%20Ideas%29%7BDK%7D%282020%2C%20DK%29%7B115363660%7D%20libgen.li.pdf) `38.9MB`
+
+---
+
+
 ### 📅 2026-05-02 03:03 IR
 - 📥 [Big Book Of Dirty Comics 03 (no indicia-vintage reprints) (Adult) (Twobyfour-DREGS).cbr](https://github.com/masqueradesoda/sandman/raw/main/dl/Big%20Book%20Of%20Dirty%20Comics%2003%20%28no%20indicia-vintage%20reprints%29%20%28Adult%29%20%28Twobyfour-DREGS%29.cbr) `23.3MB`
 
