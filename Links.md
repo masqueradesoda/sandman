@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-02 11:38 IR
+- 🎬 [How To Add Art Cover To MP3 Files (Music Files) - Full Guide.mp4](https://github.com/masqueradesoda/sandman/raw/main/dl/How%20To%20Add%20Art%20Cover%20To%20MP3%20Files%20%28Music%20Files%29%20-%20Full%20Guide.mp4) `3.3MB`
+
+---
+
+
 ### 📅 2026-05-02 11:07 IR
 - 🗜️ [i1LA0c8gd9PzePjh2eooj.zip](https://github.com/masqueradesoda/sandman/raw/main/dl/i1LA0c8gd9PzePjh2eooj.zip) `7.5MB`
 
